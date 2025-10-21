@@ -1,3 +1,3 @@
 Hello :)
 
-I am testing out what all of this is meant to be.
+My name is Tiana Nguyen, a current ASU Barrett sophomore (Go Sun Devils!), who is hoping to learn more to share more stories and perspectives through digital mediums.
